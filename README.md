@@ -1,2 +1,13 @@
-![heeheeheeha](https://github.com/user-attachments/assets/0989dec3-e3c6-466a-b32c-61d3c2196a68)
-![yes](https://github.com/user-attachments/assets/2a68d8e7-efb5-46e5-8d01-36154b870a0f)
+⫘⫘⫘⫘⫘⫘
+
+── .✦ If you managed to meet this account of mine first, please check out my public one! ts is boring .. + I have more info on my main. ␥
+
+▶︎ •၊၊||၊|။|||| |
+ᴬ ᶠᵃⁱⁿᵗ ˢⁱᵍⁿᵃˡ ⁻ ᴵⁿᶠⁱⁿⁱᵗʸ ᶠʳᵉqᵘᵉⁿᶜⁱᵉˢ
+↻ ◁ || ▷ ↺
+
+
+⫘⫘⫘⫘⫘⫘
+
+
+![heeheeheeha](https://github.com/user-attachments/assets/0a5dcbb3-b622-4012-b11f-46f44e130881)

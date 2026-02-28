@@ -1,11 +1,3 @@
-<link rel="stylesheet" href="style.css" />
-<div class="random-cont">
-  <div id="content"></div>
-<button onclick="showText()">I see london I see france</button>
-</div>
-<script src="./main.js"></script>
-
-
 <img width="433" height="577" alt="hypt-removebg-preview" src="https://github.com/user-attachments/assets/26a18223-c735-4846-9d5f-0c3a73c9ae4a" />
 (art by mee woow)
 

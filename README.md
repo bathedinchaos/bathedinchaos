@@ -1,14 +1,10 @@
-<img width="433" height="577" alt="hypt-removebg-preview" src="https://github.com/user-attachments/assets/26a18223-c735-4846-9d5f-0c3a73c9ae4a" />
-(art by mee woow)
+I humiliate @believerdebt daily.
 
-⫘⫘⫘⫘⫘⫘
+<h2>✦•┈๑⋅⋯ ⚠︎ ⋯⋅๑┈•✦</h2>
 
-── .✦ If you managed to meet this account of mine first, please check out my public one! ts is boring .. + I have more info on my main. ␥
+![rabesimonnn](https://github.com/user-attachments/assets/21df490c-f4c1-4366-9655-b2542b4ce706)
 
-▶︎ •၊၊||၊|။|||| |
-ᴬ ᶠᵃⁱⁿᵗ ˢⁱᵍⁿᵃˡ ⁻ ᴵⁿᶠⁱⁿⁱᵗʸ ᶠʳᵉqᵘᵉⁿᶜⁱᵉˢ
-↻ ◁ || ▷ ↺
-
+<h3>"14:25[︶︶ ✧ — 🩸 . cudcomf , sv] i cna be harley's touchpad tho if he needs wow who said that"</h3>
 
 ⫘⫘⫘⫘⫘⫘
 

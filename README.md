@@ -1,5 +1,7 @@
 I humiliate @believerdebt daily.
 
+<h1>if you have a sebastian solace plush, specifically the 2.0 one, that you want to resell, DM jay on discord I beg you ok? (_jay_x)</h1>
+
 <h2>✦•┈๑⋅⋯ ⚠︎ ⋯⋅๑┈•✦</h2>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lilita+One&pause=600&color=F7BEEF&width=435&lines=Gucci%2C+Gucci;Louis%2C+Louis;Fenty%2C+Fenty;Prada!)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Source+Serif+4&pause=500&color=F73E31&width=435&lines=She+up+on+my;We+crunk+off;She+a+savage;Girl+I'm+so+--)](https://git.io/typing-svg)

@@ -1,6 +1,6 @@
 <img width="1959" height="430" alt="7ymgq4" src="https://github.com/user-attachments/assets/af9876f3-5476-47bd-b922-18f18740e63c" />
 
-<img width="310" height="496" alt="WhatsApp Image 2026-06-01 at 11 50 55 AM" src="https://github.com/user-attachments/assets/f420818d-75a9-4dfe-b5ec-9f02e16e708c" />
+<img width="210" height="214" alt="chain" src="https://github.com/user-attachments/assets/0cd51134-a8ac-4baa-83d7-5f06db102da3" />
 
 
 ${\textsf{\color{#170104} ⋆ GUUH either call me Elias oooor Vex..or both! }}$
